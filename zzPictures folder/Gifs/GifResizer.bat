@@ -1,0 +1,1 @@
+gifsicle --batch --resize 700x_ --optimize *.gif

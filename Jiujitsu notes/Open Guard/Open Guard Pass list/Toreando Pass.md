@@ -1,0 +1,1 @@
+Sometimes, the simplest passes is what would work best, and that's what the Toreando pass is. Basically, you are using their knees as a steering wheel, and turning their body by turning their knees away from you to pass.

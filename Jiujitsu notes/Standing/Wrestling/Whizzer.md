@@ -1,0 +1,1 @@
+Whizzer is a wrestling terminology for a heavy overhook on an arm.

@@ -1,0 +1,3 @@
+A berimbolo is a fancy [[Back Mount]] take option done when your legs are intertwined with each other. This is normally done when you are [[Open Guard Passing]] and you have one leg in between theirs, and you can hook one of their legs and roll towards the other side. If done correctly, they will roll with you and you will be at their back, and you can latch on and start taking the back.
+
+Berimbolos can also be done in [[Mount]] by hooking their legs, as well as [[Half Guard Top]] position.
